@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi everyone 👋
 
 My name is Purivaro
 
